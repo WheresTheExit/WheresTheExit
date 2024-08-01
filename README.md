@@ -2,7 +2,7 @@
  <img src="https://file.garden/ZorENG263zPWFUDG/ad575cb9f4947ad7cd9de43730fbc0ab397baa26.gifv" "width="100" height="25">  <br />
 Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afefd31f101ae67e70468.gifv" "width="100" height="15" >  <br />
   -13/+21 int w/ caution ! <br />
-  Follow my fav incel Val! -> <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/ZorENG263zPWFUDG/ros.gif" "width="100" height="20" > </a>  <br />
+  Follow my fav incel Val! -> <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/ZorENG263zPWFUDG/Tumblr_l_13795743953359.gif" "width="100" height="20" > </a>  <br />
 <img src="https://file.garden/ZorENG263zPWFUDG/1f09285273aa47608b2c34d87ff7e8ebdb31767f.pnj" "width="100" height="35"> <br />
   "Causin' problems makes you famous.." <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/yoshida.png" "width="100" height="100"><br /> 
