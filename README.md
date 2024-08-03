@@ -3,11 +3,11 @@
 Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afefd31f101ae67e70468.gifv" "width="100" height="15" >  <br />
   -13/+21 int w/ caution ! <br />
   Follow my fav incel Val! -> <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/ZorENG263zPWFUDG/Tumblr_l_13795743953359.gif" "width="100" height="20" > </a>  <br />
-<img src="https://file.garden/ZorENG263zPWFUDG/1f09285273aa47608b2c34d87ff7e8ebdb31767f.pnj" "width="100" height="35"> <br />
+------------------------------------------------ <br />
   "Causin' problems makes you famous.." <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/yoshida.png" "width="100" height="100"><br /> 
   "All this violence makes a statement!"<br />
-<img src="https://file.garden/ZorENG263zPWFUDG/1f09285273aa47608b2c34d87ff7e8ebdb31767f.pnj" "width="100" height="35">  <br />
+------------------------------------------------ <br />
   If my skins make you uncomfortable, please hide me. <br />
   .. <br />
 <img src="https://file.garden/ZorENG263zPWFUDG/Screenshot_2024-08-01_at_01-19-34_pochita_pixel_Tumblr-removebg-preview(2).png" >-BYI+INT-<img src="https://file.garden/ZorENG263zPWFUDG/0d7bd25feb1562a61db6cf3a2adf68c4d48bcd7b.gifv" "width="100" height="20" > <br/>
