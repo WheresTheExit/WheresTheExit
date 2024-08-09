@@ -8,7 +8,7 @@ Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afe
  <img src="https://file.garden/ZorENG263zPWFUDG/yoshida.png" "width="100" height="100"><br /> 
   "All this violence makes a statement!"<br />
 ---------------------------------------<br />
-  If my skins make you uncomfortable, please hide me. <br />
+  If I make you uncomfortable, please tell me or hide me. <br />
   .. <br />
 <img src="https://file.garden/ZorENG263zPWFUDG/Screenshot_2024-08-01_at_01-19-34_pochita_pixel_Tumblr-removebg-preview(2).png" >-BYI+INT-<img src="https://file.garden/ZorENG263zPWFUDG/0d7bd25feb1562a61db6cf3a2adf68c4d48bcd7b.gifv" "width="100" height="20" > <br/>
  If you like Black Butler, BTD/TPOF, FOB, DMCB, etc - interact! <3 <br />
