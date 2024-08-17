@@ -12,7 +12,7 @@ Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afe
  .. 
  <br />
  Byi and Dni on my rentry below! <br />
- <a href="https://rentry.co/wherestheexit"><img src="https://file.garden/ZorENG263zPWFUDG/IMG_6204.png" "width="50" height="50" > </a> 
+ <a href="https://rentry.co/wherestheexit"><img src="https://file.garden/ZorENG263zPWFUDG/IMG_6264.gif" "width="50" height="20" > </a> 
  <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/ad575cb9f4947ad7cd9de43730fbc0ab397baa26.gifv" "width="100" height="25">  <br />
    <img src="https://file.garden/ZorENG263zPWFUDG/bb-removebg-preview.png" "width="100" height="150" > <br />  
