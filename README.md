@@ -5,9 +5,9 @@ Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afe
   -13/+21 int w/ caution ! <br />
   Follow my fav incel Val! -> <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/ZorENG263zPWFUDG/Tumblr_l_13795743953359.gif" "width="100" height="20" > </a>  <br />
 -------------------------------------- <br />
-  "Causin' problems makes you famous.." <br />
+  "Now a rainbow's tale isn't quite as nice..." <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/IMG_6262.gif" "width="100" height=50"><br /> 
-  "All this violence makes a statement!"<br />
+  "As the story we knew of sugar and spice.."<br />
 ---------------------------------------<br />
   If I make you uncomfortable, please tell me or hide me. <br />
  .. 
