@@ -17,7 +17,5 @@ Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afe
  <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/ad575cb9f4947ad7cd9de43730fbc0ab397baa26.gifv" "width="100" height="25">  <br />
    <img src="https://file.garden/ZorENG263zPWFUDG/bb-removebg-preview.png" "width="100" height="150" > <br />  
-/) /) ✧ ႔ ႔ <br />
-( • ༝•)   ᠸ^ ^`𐅠 <br />
-
-ㅤㅤ
+<sub/> ₊˚⊹♡ ` ᶻ 𝘇 𐰁   ႔ ႔ </sub> <br />
+<sub/>໒꒰ྀི｡- ˕ -｡ྀི꒱১  ᠸ^ ^ ` 𐅠</sub>
