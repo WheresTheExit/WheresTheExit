@@ -4,7 +4,7 @@
 Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afefd31f101ae67e70468.gifv" "width="100" height="15" >  <br />
   -13/+21 int w/ caution ! <br />
   .. <br/>
-  Follow my fav incel Val! -> <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/ZorENG263zPWFUDG/Tumblr_l_13795743953359.gif" "width="100" height="20" > </a>  <br />
+ The Denji ever! -> <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/ZorENG263zPWFUDG/Tumblr_l_13795743953359.gif" "width="100" height="20" > </a>  <br />
 -------------------------------------- <br />
   "Now a rainbow's tale isn't quite as nice..." <br />
  <img src="https://64.media.tumblr.com/5b881d96d71b3de54b281432b6182b97/c937cea2bae71fd6-ae/s100x200/c5376c74a33cf438577c7d98d096e6188f798244.pnj" "width="100" height=50"><br /> 
