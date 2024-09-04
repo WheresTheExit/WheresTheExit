@@ -10,8 +10,8 @@ Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afe
  <img src="https://64.media.tumblr.com/5b881d96d71b3de54b281432b6182b97/c937cea2bae71fd6-ae/s100x200/c5376c74a33cf438577c7d98d096e6188f798244.pnj" "width="100" height=50"><br /> 
   "As the story we knew of sugar and spice.."<br />
 ---------------------------------------<br />
-  Sowwy to all the ppl in hermit area I've pissed off >_<  <br />
- Y'all are weird anyways!! <br />
+I'm just a rolly polly in da dirt srry if I'm mean hehe <br />
+Tell / hide if I upset u plez!!! <br />
 .. 
  <br />
  Byi and Dni on my rentry below! <br />
