@@ -1,4 +1,4 @@
-<img src="https://file.garden/ZorENG263zPWFUDG/0d7bd25feb1562a61db6cf3a2adf68c4d48bcd7b.gifv"> ![](https://komarev.com/ghpvc/?username=Linnethinhere&color=000000) <img src="https://file.garden/ZorENG263zPWFUDG/f7517975.gif" >
+<img src="https://file.garden/ZorENG263zPWFUDG/0d7bd25feb1562a61db6cf3a2adf68c4d48bcd7b.gifv"> ![](https://komarev.com/ghpvc/?username=Linnethinhere&color=450c08&style=for-the-badge&label=_⋆✴︎˚｡⋆_++++&=true) <img src="https://file.garden/ZorENG263zPWFUDG/f7517975.gif" >
 <div align="center"> <br />
   <img src="https://64.media.tumblr.com/e8ae7c9d327434214005f2759e10d8c5/08b6024acb610772-57/s400x600/ea288684465fe91c5727dc6d22d5b6168070951d.gifv" "width="100" height="15">  <br />
 Boy + homo <img src="https://file.garden/ZorENG263zPWFUDG/fbfdc694d584518a1f2afefd31f101ae67e70468.gifv" "width="100" height="15" >  <br />
