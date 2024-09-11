@@ -5,11 +5,11 @@ $\color{#F2A4A4}{Boy~+~homo}$ <img src="https://file.garden/ZorENG263zPWFUDG/fbf
   $\color{#F47070}{-13/+21~int~w/~caution~!}$ <br />
   $\color{#E54545}{..}$ <br/>
  $\color{#BE0000}{The~Denji~ever!~—>}$ <a href="https://github.com/KittenChanCorruptionArc"><img src="https://64.media.tumblr.com/96e4dd7cffd61778b91ffa82eff3a507/d325acabf5fc16ad-41/s75x75_c1/278f2d1fe2ab60662afa960de9afd1da1860ddd4.gif" "width="100" height="20" > </a>  <br />
-$\color{#8A0707}{--------------------------------------}$ <br />
+$\color{#8A0707}{--------------------}$ <br />
   $\color{#750C0C}{"Not~a~lot,~just~forever..."}$ <br />
  <img src="https://64.media.tumblr.com/5b881d96d71b3de54b281432b6182b97/c937cea2bae71fd6-ae/s100x200/c5376c74a33cf438577c7d98d096e6188f798244.pnj" "width="100" height=50"><br /> 
   $\color{#5E1515}{"Intertwined,~sewn~together.."}$ <br />
-$\color{#750C0C}{--------------------------------------}$ <br />
+$\color{#750C0C}{--------------------}$ <br />
 $\color{#8A0707}{I'm~just~a~rolly~polly~in~da~dirt~srry~if~I'm~mean~hehe}$ <br />
 $\color{#BE0000}{Tell~/~hide~me~if~I~upset~u~plez!!!}$ <br />
 $\color{#E54545}{..}$
