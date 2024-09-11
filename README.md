@@ -10,7 +10,7 @@ $\color{#8A0707}{--------------------}$ <br />
  <img src="https://64.media.tumblr.com/5b881d96d71b3de54b281432b6182b97/c937cea2bae71fd6-ae/s100x200/c5376c74a33cf438577c7d98d096e6188f798244.pnj" "width="100" height=50"><br /> 
   $\color{#5E1515}{"Intertwined,~sewn~together.."}$ <br />
 $\color{#750C0C}{--------------------}$ <br />
-$\color{#8A0707}{I'm~just~a~rolly~polly~in~da~dirt~srry~if~I'm~mean~hehe}$ <br />
+$\color{#8A0707}{I'm~just~a~rolly~polly~srry~if~I'm~mean~hehe}$ <br />
 $\color{#BE0000}{Tell~/~hide~me~if~I~upset~u~plez!!!}$ <br />
 $\color{#E54545}{..}$
  <br />
