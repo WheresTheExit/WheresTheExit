@@ -16,6 +16,6 @@ $\color{#E54545}{..}$
  <a href="https://rentry.co/wherestheexit"><img src="https://supplies.ju.mp/assets/images/gallery08/7ce87f0b.gif?v=6a50b904" "width="25" height="25" > </a> 
  <br />
  <img src="https://github.com/user-attachments/assets/29ddb431-30c4-4acb-990c-fd79470dc2c2" "width="100" height="15">  <br />
-   <img src="https://file.garden/ZorENG263zPWFUDG/bb-removebg-preview.png" "width="100" height="150" > <br />
+   <img src="https://file.garden/ZorENG263zPWFUDG/bb-removebg-preview.png" "width="100" height="200" > <br />
  <sub/> $\color{#F2A4A4}{₊˚⊹♡~`ᶻ~𝘇~𐰁~...႔~~႔}$</sub> <br />
 <sub/>$\color{#F2A4A4}{໒꒰ྀི｡-~˕~-｡ྀི꒱১~~ᠸ◠~◠~𐅠}$ <br /> <br />
