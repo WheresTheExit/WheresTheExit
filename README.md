@@ -1,6 +1,7 @@
 <p align="center">
- <a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=WheresTheExit&label=%E2%8B%86%CB%99%E2%9F%A1%20%E2%80%94&color=4&icon=9&pretty=true" /> <br />
+<a href="https://visitcount.itsvg.in">
+  <img src="https://visitcount.itsvg.in/api?id=WheresTheExit&label=%E2%8B%86%CB%99%E2%9F%A1%20%E2%80%94&color=4&icon=9&pretty=false" />
+</a> <br />
 </a>
 <img src="https://files.catbox.moe/ka02rf.gif" "width="200" height="70"> <br />
  <img src="https://files.catbox.moe/1z0z3s.png" "width="" height="30">
